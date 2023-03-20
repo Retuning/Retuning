@@ -1,3 +1,3 @@
 # hi i'm willow
 
-im cool or something idk
+im not cool or something idk
